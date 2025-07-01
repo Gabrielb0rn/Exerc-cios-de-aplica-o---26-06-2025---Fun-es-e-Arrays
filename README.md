@@ -1,0 +1,1 @@
+# Gabrielb0rn-Exerc-cios-de-aplica-o---26-06-2025---Fun-es-e-Arrays
